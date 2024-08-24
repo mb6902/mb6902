@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mb6902
-- 👀 I’m interested in ...devoloper role
+- 👀 I’m interested in ...devoloper and QA role
 - 🌱 I’m currently learning ...cognitive syllabus
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
